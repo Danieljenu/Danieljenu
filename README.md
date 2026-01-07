@@ -2,7 +2,7 @@
 - 👀 I’m interested in problem solving, talking,photography,traveling,programming,dancing,videogames and electronics
 - 📷 crazy about cameras
 - ✨ I likes to explore new places with different traditions and cultures.
-- 🌱 I’m currently learning 11th CBSE😁 in India
+- 🌱 I’m currently learning 12th CBSE😁 in India
 - 💞️ I’m looking to collaborate people with new and crazy Ideas 
 - 📫 reach me at Instagram @daniejenu
 - ⚡ Fun fact:I am a talkative and wants to experience everything in the world !
